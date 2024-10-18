@@ -28,3 +28,4 @@ yEah why i wonder as well
 ---
 Copyright © 2024 CKEFGISC 建北電資 29th
 made by ChatGPT
+damn that suckss doesnt it
